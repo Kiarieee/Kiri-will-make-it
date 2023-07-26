@@ -6,3 +6,4 @@ I'm lost
 I feel like I'm alone
 It's a good feeling somehow
 I WILL MAKE THE BEST OUT OF IT!!!
+AMEENNN
